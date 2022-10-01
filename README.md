@@ -2,4 +2,4 @@
 - 👀 I’m interested in doing war crimes in Bosnia
 - 🌱 I’m currently learning HoI4 syntax code
 - 💞️ I’m looking to collaborate on your mother
-- 📫 How to reach me - dsc: Dylan Falkenhausen#8754
+- 📫 How to reach me - dsc: Natt Falkenhausen#8754
